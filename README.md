@@ -1,1 +1,1 @@
-My life is cool
+God is good
